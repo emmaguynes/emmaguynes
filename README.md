@@ -1,4 +1,4 @@
-  ✨ ## Hi there!!✨
+   ✨Hi there!!✨
 ☆*: .｡. o(≧▽≦)o .｡.:*☆
 -🐞I like bugs!
 -🍡I like colors!
